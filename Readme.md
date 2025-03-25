@@ -3,6 +3,7 @@
 ## Part 0-2
 
 [Link to video](https://disk.yandex.ru/d/-HoYzIdLXi5f8A)
+[2nd part](https://disk.yandex.ru/i/xNlw1_OjiprdpQ) , i had  problems in previous video
 
 ## Part3
 
