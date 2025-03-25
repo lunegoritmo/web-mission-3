@@ -2,7 +2,7 @@
 
 ## Part 0-2
 
-[Link to video](https://disk.yandex.ru/i/Xlu2JbJy0JiVmA)
+[Link to video](https://disk.yandex.ru/d/-HoYzIdLXi5f8A)
 
 ## Part3
 
